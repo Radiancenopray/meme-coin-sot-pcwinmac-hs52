@@ -1,4 +1,4 @@
-# 
+# Advanced meme coin sniper bot presets for Mac OS | Elite meme coin sniper bot presets for PC Windows. Featuring gas price optimization and bundle execution — optimized for maximum performance on every platform.
 
 
 
